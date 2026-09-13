@@ -1,0 +1,1 @@
+# pvzrh-mod-resources
